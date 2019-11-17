@@ -1,1 +1,2 @@
 # nauka gita
+uczymy sie
